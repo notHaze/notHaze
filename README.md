@@ -18,4 +18,4 @@ Currently student at the Paul Sabatier University, i am an hardworking and motiv
 ---
 [![](https://visitcount.itsvg.in/api?id=notHaze&icon=0&color=0)](https://visitcount.itsvg.in)
 
-<!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
+<!-- Proudly created with GPRM ( https://gprm.itsvg.in ) --> 
